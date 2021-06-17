@@ -6,3 +6,5 @@
 tucaoba2333/tucaoba2333 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+露娜酱......
+![avatar](https://raw.githubusercontent.com/tucaoba2333/tucaoba2333/main/Luna.jpg)
