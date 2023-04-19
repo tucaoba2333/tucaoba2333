@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tucaoba2333
-- 👀 I’m interested in Malody,cytus2,phigros,osu
-- 🌱 I’m currently learning in high school
+- 👀 I’m interested in maimai&pjsk
+- 🌱 I’m currently learning in WXIC
 - 📫 How to reach me:523700286@qq.com
 <!---
 tucaoba2333/tucaoba2333 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
